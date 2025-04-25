@@ -1,5 +1,7 @@
 # btvn6
 bai6
+![image](https://github.com/user-attachments/assets/73b47922-bd71-490a-983d-7974ccc18e5b)
+![image](https://github.com/user-attachments/assets/509c2c63-3736-43b4-96c4-c8ebbef45120)
 ![image](https://github.com/user-attachments/assets/1c9523fd-1d7c-4b4f-a4a9-0f9c23329edf)
 ![image](https://github.com/user-attachments/assets/5fd8a955-6f74-45f8-939a-af2720551cc0)
 ![image](https://github.com/user-attachments/assets/f0a21352-72a8-4b01-a932-f94d0b1be03c)
